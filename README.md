@@ -12,4 +12,3 @@ NEXT TIME
 
 God help
 
-My 
