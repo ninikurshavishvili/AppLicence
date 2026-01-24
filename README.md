@@ -11,4 +11,7 @@ NEXT TIME
 
 
 God help
+some
 
+Nnmnn
+bBANN
