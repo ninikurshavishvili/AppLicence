@@ -1,3 +1,6 @@
 # AppLicence
 // NEED TO CLEAN UP
-//bozi:kaci//#
+
+
+Learn till 8
+u
