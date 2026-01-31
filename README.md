@@ -1,6 +1,5 @@
 # AppLicence
 // NEED TO CLEAN UP
-//bozi:kaci//#
-
+gmკწ  
 
 ??efwfw ?
