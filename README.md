@@ -4,3 +4,10 @@
 
 Learn till 8
 u
+gmკწ  
+
+??
+
+atvet
+
+mmoomooomkkm
