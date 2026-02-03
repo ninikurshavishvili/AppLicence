@@ -14,3 +14,7 @@ atvet
 
 >>Rger>>erger>>>egrge>>egr
 mmoomooomkkm
+
+
+კსდჯ
+სკდჯვ
