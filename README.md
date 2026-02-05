@@ -18,3 +18,5 @@ mmoomooomkkm
 
 კსდჯ
 სკდჯვ
+
+wrtw wrtva 4et
