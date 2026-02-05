@@ -19,5 +19,4 @@ mmoomooomkkm
 კსდჯ
 სკდჯვ
 
-
-wenlnn
+wrtw wrtva 4et
