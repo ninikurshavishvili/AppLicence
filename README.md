@@ -19,7 +19,12 @@ mmoomooomkkm
 კსდჯ
 სკდჯვ
 
-wrtw wrtva 4et
+wrtw wrtva 4etaadv
+adv
+advadmvadva
+dva
+kdva
+;dv
 ADJBC
 mmsnbjsn
 jsnsnns 
