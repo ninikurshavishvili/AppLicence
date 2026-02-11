@@ -1,5 +1,4 @@
-# AppLicence
-// NEED TO CLEAN UP
+jh
 
 
 Learn till 8
