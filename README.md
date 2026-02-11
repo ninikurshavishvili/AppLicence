@@ -1,5 +1,4 @@
-# AppLicence
-// NEED TO CLEAN UP
+jh
 
 
 Learn till 8
@@ -34,3 +33,4 @@ jske
 
 
 ssnsnsns
+wrtw wrtva 4et
