@@ -13,6 +13,14 @@ gmკწ
 ;dv
 ADJBC
 mmsnbjsn
+
+
+,nm ,s
+dvad
+vad
+vad
+vad
+v
 jsnsnns 
 jsjsjen
 jhv
