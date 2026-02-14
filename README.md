@@ -1,13 +1,4 @@
-jh
 
-
-Learn till 8
-u
-gmკწ  
-
-??mhvjhvljhvl ui
- oi 
-  po  
   iojo
   ipjk
 ;dv
