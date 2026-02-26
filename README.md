@@ -1,9 +1,3 @@
-okkn
-  iojo
-  ipjk
-;dv
-ADJBC
-mmsnbjsn
 
 
 ,nm ,s
@@ -12,6 +6,8 @@ vad
 vad
  bbleuueeee heeannss
 v
+
+
 jsnsnns 
 jsjsjen
 jhv
@@ -28,3 +24,5 @@ dvsrgw
 rg
 wsrg
 w
+mn
+Readme
